@@ -50,6 +50,7 @@ It also gives account to what happened to other species of humans (Noah was a ho
 Noah’s story also gives an account to what happened to the dinosaurs.
 
 ### Picture of Dinosaurs dying of asphyxiation:
+<img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/1146e6a1-b187-4a66-834b-b7873d35676c" />
 
 Most of the story of mythological creatures, and mighty men of old all take their roots from the old world (time of Noah) before the flood.
 
