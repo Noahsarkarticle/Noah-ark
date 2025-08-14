@@ -8,6 +8,7 @@ How old were you when you discovered that Noah’s ark wasn’t a myth but rathe
 The story of Noah also gives a vivid account of what might have happened to other species of Humans.
 
 It also offers explanation to what might have caused the splitting of the planet continents.
+![Image](https://github.com/user-attachments/assets/d515aa91-dc83-41ea-bbc7-690eec67a364)
 
 The origin of demons & that of the fallen angels can be found written in a scroll, the Dead Sea scroll (the book of enoch).
 
