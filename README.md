@@ -30,7 +30,7 @@ The tallest man that ever lived was believed to be far too little compared to th
 ### Tallest man that ever lived:
 ![Image](https://github.com/user-attachments/assets/6108dcf5-a198-4f31-bc0a-86e78876eae3)
 
-### Vs
+**Vs**
 
 ### Picture of Giants comparisons:
 
