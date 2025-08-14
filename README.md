@@ -3,6 +3,7 @@
 How old were you when you discovered that Noah’s ark wasn’t a myth but rather a recount of a true biblical event that changed the whole of planet history.
 
 ### Picture of Noah’s ark discovered on top Mount Ararat:
+<img width="720" height="1371" alt="Image" src="https://github.com/user-attachments/assets/e0cf7eea-df97-4bfe-8abe-e1fb37995a6b" />
 
 The story of Noah also gives a vivid account of what might have happened to other species of Humans.
 
