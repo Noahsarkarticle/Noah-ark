@@ -15,6 +15,7 @@ The origin of demons & that of the fallen angels can be found written in a scrol
 The book of Enoch was have been referenced in the book of Jude 1:14—15.
 
 ### Picture of book of Enoch:
+<img width="640" height="828" alt="Image" src="https://github.com/user-attachments/assets/f4042020-d23e-48ef-ae4e-747a2d282828" />
 
 According to some scholars it was believed to have formed the world view of the early christians & Jews during the time of Jesus.
 
