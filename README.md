@@ -38,6 +38,7 @@ The tallest man that ever lived was believed to be far too little compared to th
 Bones of these Giants are been discovered all over the globe…including some strange alien like artifacts and bones unlike the humans of today.
 
 ### Pictures of Giant:
+![Image](https://github.com/user-attachments/assets/cf38f241-e227-474d-a2e7-49e1eb228a32)
 
 It also gives account to what happened to other species of humans (Noah was a homo sapiens saved in the flood).
 
