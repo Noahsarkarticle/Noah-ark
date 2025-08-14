@@ -39,6 +39,8 @@ Bones of these Giants are been discovered all over the globe…including some st
 
 ### Pictures of Giant:
 
+It also gives account to what happened to other species of humans (Noah was a homo sapiens saved in the flood).
+
 ### Picture of other species of humans lost in the flood:
 
 Noah’s story also gives an account to what happened to the dinosaurs.
