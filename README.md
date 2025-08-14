@@ -33,6 +33,7 @@ The tallest man that ever lived was believed to be far too little compared to th
 **Vs**
 
 ### Picture of Giants comparisons:
+![Image](https://github.com/user-attachments/assets/5cf27202-7b96-4aa9-8436-261e28143f26)
 
 Bones of these Giants are been discovered all over the globe…including some strange alien like artifacts and bones unlike the humans of today.
 
