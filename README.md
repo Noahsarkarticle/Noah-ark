@@ -40,6 +40,8 @@ Bones of these Giants are been discovered all over the globe…including some st
 ### Pictures of Giant:
 ![Image](https://github.com/user-attachments/assets/cf38f241-e227-474d-a2e7-49e1eb228a32)
 
+<img width="720" height="1600" alt="Image" src="https://github.com/user-attachments/assets/eddebe2a-02f3-46c3-9b9d-3698b1675257" />
+
 It also gives account to what happened to other species of humans (Noah was a homo sapiens saved in the flood).
 
 ### Picture of other species of humans lost in the flood:
